@@ -29,7 +29,12 @@ Wealthsimple could create different platforms for professional and new investors
 
 ## Resources
 https://financialpost.com/entrepreneur/fp-startups/wealthsimple-aims-to-turn-financial-services-industry-on-its-head-with-new-low-coast-approach-to-investing
+
 https://www.bestroboadvisors.org/wealthsimple-review/
+
 https://www.borndigital.com/2015/12/02/wealthsimple-2015-12-02
+
 https://www.theglobeandmail.com/globe-investor/wealth-the-next-generation/article29937104/
-https://financialpost.com/investing/retail-investors-say-theyre-losing-thousands-as-brokerages-struggle-with-record-traffic-due-to-coronavirus-panic
+
+https://financialpost.com/investing/
+retail-investors-say-theyre-losing-thousands-as-brokerages-struggle-with-record-traffic-due-to-coronavirus-panic
